@@ -3,4 +3,4 @@ Please be sure to check out [Elite FTS Articles](https://www.elitefts.com/)
 
 Check out (About Me)
 
--Thanks for coming! 
+--Thanks for coming! 
